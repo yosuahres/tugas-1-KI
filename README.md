@@ -1,1 +1,2 @@
-# tugas-1-KI
+**Yosua Hares** <br>
+**5025221270**
